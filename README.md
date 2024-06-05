@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil :blue_heart
+### Boavindas ao meu perfil :DNCA2B
 
 Meu nome é Diana Nathalia
 
@@ -12,5 +12,7 @@ Meu nome é Diana Nathalia
 
 @DNCA2B
 
-![descrição do GIF](link GIF do Tenor)
+
+![](https://media1.tenor.com/m/q_jj1u340XAAAAAd/snowball-bunny-carrot.gif)
+
 
